@@ -1,2 +1,3 @@
-# crazypolishman.github.io
-CrazyPolishMan homepage.
+# crazypolishman.pl
+A home of Flat Earth deniers.
+https://crazypolishman.pl
